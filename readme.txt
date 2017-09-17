@@ -1,3 +1,3 @@
 Welcome to NessieCash!
 
-Cash Money Gang Gang 💰💵🤑
+More information (and a new name) coming soon!
